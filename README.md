@@ -10,7 +10,7 @@ A quality set of broderie anglaise texture backgrounds can transform your design
 <h2>Versatile Applications Across Industries</h2>
 The versatility of broderie anglaise textures makes them a valuable asset across various creative sectors:
 <ul>
-<li><strong>Art Projects:</strong> Whether you're creating digital artwork, stationery, or scrapbook layouts, broderie anglaise backgrounds add depth and character. They can serve as a subtle backdrop that highlights the main elements without overwhelming them, enhancing the overall aesthetic.</li>
+<li><strong>Art Projects:</strong> Whether you're creating digital artwork, stationery, or scrapbook layouts, <a href="https://textures.world/textile/30-broderie-anglaise-texture-backgrounds">broderie anglaise backgrounds</a> add depth and character. They can serve as a subtle backdrop that highlights the main elements without overwhelming them, enhancing the overall aesthetic.</li>
 
 <li><strong>Advertising for Textile Products:</strong> For businesses in the textile industry, showcasing products in a visually appealing manner is crucial. Utilizing broderie anglaise textures can evoke feelings of warmth and nostalgia, making the products stand out in advertisements. The intricate designs resonate well with customers seeking quality and craftsmanship.</li>
 
